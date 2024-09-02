@@ -18,7 +18,7 @@ Enjoy the flexibility of real-time adjustments during your journey. Jetzen alert
 
 Travel smartly with Jetzen's budget-friendly plans. From accommodations to dining, every aspect of your trip is curated to match your financial preferences.
 
-### 4. Personalized Itineraries
+### 4. Personalized Trips
 
 Jetzen understands that every traveler is unique. Whether you're on a solo adventure or a family vacation, Jetzen creates personalized plans that cater to your specific requirements.
 
